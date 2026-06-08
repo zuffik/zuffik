@@ -1,4 +1,4 @@
-**90's child** (my 30 is still incoming)...
+**90's child**
 
 💻 Programmer with entire ❤️
 
